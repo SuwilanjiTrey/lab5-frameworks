@@ -5,7 +5,7 @@
 
 **Student Name:** Suwilanji Chellah
 **Student ID:** 2021531309 
-**Group Member :** [Optional: Name of teammate if applicable]
+**Group Member :** Olivia Nguni - 2021460380
 
 ---
 
